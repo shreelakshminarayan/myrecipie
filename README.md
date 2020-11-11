@@ -29,6 +29,29 @@ ice cube (opitional).
 6) if your puris' pani is ready then add boondis' and corrinder in it'
 # now our puris' pani is also ready!
 7) And at the last fry the puris.
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
+                                                   
                                                    NOW OUR SNACKS IS READY AND SERVE IT! 
                                                            
                                                             
